@@ -2,5 +2,4 @@
 
 
 
-# ![Alt text]([rezaulkarimrk.com](rezaulkarimrk.com))
 # [rezaulkarimrk.com](rezaulkarimrk.com)
